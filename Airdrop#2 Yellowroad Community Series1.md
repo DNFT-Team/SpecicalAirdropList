@@ -1,4 +1,4 @@
-##### Theme: Yellowroad community Airdrop (1st Series)
+##### Theme: Yellowroad community Airdrop Series1
 
 ##### Address Type: BSC
 
