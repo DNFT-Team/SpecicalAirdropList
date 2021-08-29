@@ -1,4 +1,4 @@
-##### Theme: MantraDAO community Airdrop (2nd Series)
+##### Theme: MantraDAO community Airdrop Series2 (1 month after Series1)
 
 ##### Address Type: ETH
 
